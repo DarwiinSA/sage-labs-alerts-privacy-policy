@@ -1,6 +1,6 @@
 Privacy Policy for SAGE LABS Alerts
 
-Last Updated: [Insert Date]
+Last Updated: 09/10/2023
 
 1. Introduction
 
